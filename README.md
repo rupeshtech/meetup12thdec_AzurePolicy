@@ -1,0 +1,1 @@
+# meetup12thdec_AzurePolicy
